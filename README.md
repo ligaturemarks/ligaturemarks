@@ -9,7 +9,7 @@
 <br>
 
 <p align="center">
-  <a href="https://syndrome.atabook.org/">新𝖻𝗈𝗈𝗄</a>   ╋━━━   <a href="https://spencerphile.straw.page/">straw</a>ㅤ
+  <a href="https://syndrome.atabook.org/">新𝖻𝗈𝗈𝗄</a>   ╋━━━   <a href="https://surgeryboy.straw.page/">straw</a>ㅤ
 </p>
 
 
